@@ -1,0 +1,2 @@
+# premium-earthenware-001-earthenware-glaze-recipe-plann
+Tired of scattered sticky notes and inconsistent batches? Your earthenware glazes deserve a system that tracks every variable—from ingredient ratios to firing results—so you can finally replicate that perfect satin matte every time.  The Earthenware Glaze Recipe Planner is a Notion template designed specifically for potters who work with cone 04-06
